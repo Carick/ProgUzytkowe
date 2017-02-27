@@ -1,0 +1,1 @@
+nowy plik z pkt 20
